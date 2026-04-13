@@ -82,8 +82,7 @@
 **단아쌤 (김경은)** — 이커머스 교육 14년차
 
 - 경희대학교 경영대학원 겸임교수
-- 한성대학교 뷰티 SNS 마케팅 외래강사
-- 저서: 『들숨에 주문 날숨에 정산』 (2025 출간 예정)
+- 단아쌤 유튜브 : https://www.youtube.com/@danasam
 - 쇼핑몰학교: [shoppingmallschool.com](https://shoppingmallschool.com)
 
 > 이 스킬이 도움이 됐다면 ⭐ Star를 눌러주세요!  
